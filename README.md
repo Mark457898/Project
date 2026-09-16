@@ -6,3 +6,5 @@ I understand that i'm going to have to create a good marketing strategy for this
 A skill i have is that can persuade people i'm not sure how much but i can.
 Some skills that i need are; being able to understand by target audience, consumer base, how to communicate with consumers, and other things.
 My first three tasks are to research the customer base, find out the price scale for this thing, and figure out how to market it to consumers.
+My target audience is niche novelty collectors and people who like to buy cool things because they are cool.
+A question that i have about the project is whether or not i can change the product i'm marketing to something more practical and economically viable.
