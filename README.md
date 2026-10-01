@@ -13,6 +13,6 @@ If you go for a cold businesslike style marketing strategy, does it push people 
 
 
 
-Project requirement checklist point 1: Speculate: Explanations, Questions, and Thoughts
+
 Project requirement checklist point #1: Speculate about the core audience. Speculate on what they want. Speculate on how they would react to various marketing strategies. 
  How will people react to this particular marketing strategy?  will it cause people to have the same cement within your mind; what you think your audience wants, how they will react to your marketing campaign, how to go about the marketing campaign. various options like a businesslike persona; an overly cheerful persona; a wise, funny, and playful grandpa type persona (referencing KFC and the Colonel), find,  research,
