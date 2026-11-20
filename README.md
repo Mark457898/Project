@@ -18,7 +18,7 @@ Project requirement checklist point #1: Speculate about the core audience. Specu
  How will people react to this particular marketing strategy?  will it cause people to have the same cement within your mind; what you think your audience wants, how they will react to your marketing campaign, how to go about the marketing campaign. various options like a businesslike persona; an overly cheerful persona; a wise, funny, and playful grandpa type persona (referencing KFC and the Colonel), find,  research,
 
 
-I changed the text from the above text to this. The reason I changed the text is because it was getting too overly complex and impractical. A streamlined version is better. What happened afterward is that my text became less convoluted and bloated and messy. This makes it more readable. It also no longer has unnecessary things.
+I changed the text from the above text to this. The reason I changed the text is because it was getting too overly complex and impractical. A streamlined version is better. What happened afterward is that my text became less convoluted and bloated and messy. This makes it more readable. It also no longer has unnecessary things. I also changed the requirements to the actual FBLA standards.
 
 I plan to create a new marketing strategy for a heating device. The device is a radiator/heater that utilizes practical effects to look like a rock with molten lava flowing. It comes in different sizes. Little ones can be used as a heat source for pets or small areas. Big ones can be used to heat an entire room. A chip inside, which is insulated from heat, connects to your devices remotely through bluetooth. You can regulate the temperature there. You can even turn it off. There is also a dial connected directly to the device by wire which can stick to a wall. There is also a touchscreen that can stick to the wall.
 
@@ -62,3 +62,9 @@ Sales, communication, persuasion, product research, audience analysis, listening
 
 WHAT YOU WILL PRESENT OR SUBMIT
 An interactive live sales presentation demonstrating product knowledge, persuasive communication, customer engagement, and effective sales techniques.
+
+IMPORTANT QUESTION FOR 6.9 | Revision & Professional Skills Checkpoint PLS REPLY!!! It is REQUIRED to get feedback to complete this assignment.
+
+What should I do next after researching the target audience? How should i structure this thing?
+
+
